@@ -1,1 +1,2 @@
 Becka Morgan
+Sam Smith
